@@ -1,1 +1,1 @@
-# Kurs_ishi_loyiha
+# Kurs_ishi_loyiha Durdona
